@@ -5,3 +5,4 @@ Hi here, I am now working in works application. I have working experiece of usin
 
 I want to help my wife find a new job.
 I need to help her find a job in one month.
+She already find a new job now
